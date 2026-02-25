@@ -1,1 +1,4 @@
 # based-3
+happy life
+cz binance
+1000$ sol
