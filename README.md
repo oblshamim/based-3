@@ -9,3 +9,4 @@ come back again
 life of pie
 cut my hair
 i hate you
+take it easy
