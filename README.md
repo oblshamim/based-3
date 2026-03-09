@@ -10,3 +10,4 @@ life of pie
 cut my hair
 i hate you
 take it easy
+dont fade this
