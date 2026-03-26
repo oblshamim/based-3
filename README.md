@@ -11,3 +11,4 @@ cut my hair
 i hate you
 take it easy
 dont fade this
+love is power
